@@ -1,1 +1,1 @@
-Video preview of the application is added
+video is too big
